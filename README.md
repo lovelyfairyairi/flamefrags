@@ -1,10 +1,16 @@
 # flamefrags
-ㅤ 
-🪽     . . .⠀⠀꒰ strawpage wip ꒱
+i hate my chungus life
 
-            ⁺　.⠀ val/micah/zam/ask , 15⠀  ⌒₊˚ ❤︎ ⠀ 
-                    ask   ノ⠀he ノ they
-       ︵  '' You don't envy only the things you can’t reach ''  
-                                p-did sys!
+val/micah/zam/fluixon/ask 
 
-        
+he/they/ask/neos/xenos
+
+digital**angel** 
+
+c+h always unless w friends!
+
+p-did sys, fictionkin, copinglink, alterhuman
+
+chronically online
+
+carnage smp my beloved<3
