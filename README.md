@@ -1,2 +1,10 @@
 # flamefrags
-he/they/ask  val/micah/ask  gay, boyflux, demi-gender  24/10🎂 1/15💌 !!WIP!!
+ㅤ 
+🪽     . . .⠀⠀꒰ strawpage wip ꒱
+
+            ⁺　.⠀ val/micah/zam/ask , 15⠀  ⌒₊˚ ❤︎ ⠀ 
+                    ask   ノ⠀he ノ they
+       ︵  '' You don't envy only the things you can’t reach ''  
+                                p-did sys!
+
+        
